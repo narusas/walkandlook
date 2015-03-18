@@ -1,0 +1,1 @@
+study project for ones who walk and look
